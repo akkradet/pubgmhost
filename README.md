@@ -1,0 +1,3 @@
+# pubgmhost
+
+anti ban
