@@ -1,3 +1,5 @@
 # pubgmhost
 
-anti ban
+Host For All Version
+
+Enjoy
